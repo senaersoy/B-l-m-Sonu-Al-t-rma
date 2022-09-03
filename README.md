@@ -1,1 +1,1 @@
-# B-l-m-Sonu-Al-t-rma
+HTML eğitiminin sonunda yaptığım bölüm sonu alıştırması.
